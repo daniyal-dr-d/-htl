@@ -4,4 +4,4 @@
 
 ## acknowledgements
 muhammad daniyal naeem
-https://www.instagram.com/daniyalnaeem67/p/DVyDLghCkcPjwnAI8yUlz06A21xU_kKRuTD29k0/
+<img width="33" height="30" alt="image" src="https://github.com/user-attachments/assets/e7acfdf7-c1c2-43db-b9a9-6eaa90cdd323" />
